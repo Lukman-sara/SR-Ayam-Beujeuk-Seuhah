@@ -1,1 +1,0 @@
-# SR-Ayam-Beujeuk-Seuhah
